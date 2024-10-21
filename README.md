@@ -1,0 +1,1 @@
+Staticwebsitehosting
