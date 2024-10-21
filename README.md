@@ -1,1 +1,1 @@
-Staticwebsitehosting
+Staticwebsitehostings
